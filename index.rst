@@ -1,12 +1,4 @@
 
-
-`sagesse sante
-<https://sagessesante.fr/>`_ .
-
-`Regime hyperproteine : avis, recettes et dangers
-<https://sagessesante.fr/regime-proteine>`_
-
-
 Il est aisé de croire que son couple est différent des autres, qu’il est unique. Mais il ne l’est probablement pas. La relation amoureuse est une relation qui requière que l’on y consacre du temps afin qu’elle perdure et elle n’est jamais sans accrocs, sans passage à vide. La relation amoureuse n’est jamais un long fleuve tranquille.
 
 Nous savons tous qu’une relation de couple demande des efforts et sacrifices et que malgré tout elle peut nous décevoir. Mais lorsqu’il s’agit de sa relation, c’est différent…enfin c’est ce que l’on croit

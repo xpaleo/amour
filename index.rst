@@ -1,59 +1,28 @@
-Les meilleures sources de protéines
-Plusieurs experts en nutrition s’accordent à dire que les régimes riches en protéines favorisent la perte de poids et permettent de garder fermement les masses musculaires.
 
-Cet article résume tout ce dont vous avez besoin de savoir sur les sources de protéines. Vous obtiendrez plus de précisions notamment par rapport vos besoins en protéine et les éventuels dangers d’un régime hyperprotéiné.
 
-Vos besoins en protéine
-Les protéines sont indispensables dans la construction et le développement de nos muscles, de notre peau et de nos organes.
-
-Ces macromolécules sont également essentielles aux enzymes et hormones de notre corps pour en assurer le bon fonctionnement. Dans notre organisme, les protéines se retrouvent sous forme d’acides aminés.
-
-En règle générale, c’est notre alimentation qui nous fournit les acides aminés indispensables à notre corps.
-
-À la question : de quelles quantités de protéines avez-vous besoin par jour ? Optez pour un régime constitué de 30 % de protéines sur le total des calories que vous allez absorber. Pensez à répartir les aliments riches en acides aminés sur plusieurs repas.
-Les sources de protéine
-Le corps humain a été programmé pour se nourrir d’aliments présents dans la nature. Si vous recherchez les meilleures sources de protéines pour perdre du poids, elles sont fournies par les produits d’origines animales. 
-
-La viande, les œufs, les fruits de mer et les produits laitiers sont autant de mets qui produisent des acides aminés dont le corps à besoin.
-
-Si vous êtes végétarien, il existe tout de même une alternative à ces aliments. Toutefois, les protéines contenues dans les substances végétales sont plus faibles en règle générale. 
-Ceci étant dit, voici quelques aliments d’origine végétale qui en recèlent suffisamment :
--          les haricots ;
--          les fruits à coques ;
--          les graines ;
--          les légumineuses.
-
-Il faut préciser que les produits issus du monde animal regorgent de nutriments absents dans les produits végétaux tels que : les vitamines D, les vitamines B12, le zinc et le fer héminique.
-Vous pouvez avoir une gamme complète des niveaux de protéines de bien d’autres aliments en suivant l’actualité du nutritionniste
 `sagesse sante
 <https://sagessesante.fr/>`_ .
 
-Pourquoi adopter un régime protéiné ?
-Si vous voulez perdre du poids, la majorité des régimes les plus efficaces se basent sur un apport élevé en protéine. Pourquoi cela ? Pour plusieurs raisons en réalité :
-
-1-  	Ces substances font augmenter de manière temporaire votre métabolisme. Par conséquent, votre corps va pouvoir brûler un peu plus de calories que d’habitude.
-
-2-  	Une importante présence d’acides aminés dans l’organisme freine l’appétit. Étant rassasié, vous ne pensez pas à grignoter et vous mangerez moins. Alors, vous éviterez de prendre des calories en trop.
-
-Concrètement, nourrir votre corps de protéines réduit les apports caloriques. Voilà pourquoi ce genre de régime contribue à faire perdre du poids.  
-
-Seulement, une fois votre objectif atteint, continuez de manger des aliments riches en protéines. Cela favorisera le maintien de votre poids idéal après avoir perdu des calories. Quels pourraient être les recettes et dangers pour les régimes protéinés ?
-Les éventuels risques d’un régime protéiné : avis
-D’emblée, il est nécessaire de préciser qu’aucun régime ultra-riche en protéine ne peut nuire à la santé d’une personne bien portante.
-
-Néanmoins, ce genre de régime est à proscrire pour les personnes atteintes de maladies rénales. Absorber plus de 50 % de protéines animales par jour peut solliciter fortement vos reins. En effet, ces derniers auront la lourde tâche d’évacuer les acides organiques issus de ces produits.
-
-Une surconsommation de protéine peut également engendrer :  
--      Une mauvaise haleine. Si cela n’a aucun impact sur votre santé, cet état n’en demeura pas moins gênant. En fait, ce serait à cause de notre corps qui libère des déchets en puisant son énergie dans notre graisse.
--          Des flatulences.
--          L’infection de l’acné.
--          Des maux de tête si vous manquez de glucides.
-Suivre un régime protéiné
-Vous vous demandez sûrement quelles recettes adopter pour suivre un régime protéiné. Alors, pensez à préparer vos repas à base des produits suivants : œuf, steak tartare, viande de volaille, rôti de bœuf, viande de poisson, fruits de mer, etc.
-
-Si vous êtes végétarien, ajoutez à votre alimentation des produits comme : les champignons, les graines, les fruits à coque, les protéines de chanvre, les algues et les salicornes.
-
-Ainsi, au petit-déjeuner, vous pouvez prendre des œufs brouillés mélangés avec un peu de tomates. Au déjeuner : un délicieux burger au thon et au dîner : des crevettes sautées à l’ail.
-
-Pour en savoir plus consultez l’article `Regime hyperproteine : avis, recettes et dangers
+`Regime hyperproteine : avis, recettes et dangers
 <https://sagessesante.fr/regime-proteine>`_
+
+
+Il est aisé de croire que son couple est différent des autres, qu’il est unique. Mais il ne l’est probablement pas. La relation amoureuse est une relation qui requière que l’on y consacre du temps afin qu’elle perdure et elle n’est jamais sans accrocs, sans passage à vide. La relation amoureuse n’est jamais un long fleuve tranquille.
+
+Nous savons tous qu’une relation de couple demande des efforts et sacrifices et que malgré tout elle peut nous décevoir. Mais lorsqu’il s’agit de sa relation, c’est différent…enfin c’est ce que l’on croit
+
+Voici quelques vérités qui sont souvent difficile à accepter, bien qu’elles aideraient à vivre une relation plus heureuse et enrichissante.
+
+Nous sommes souvent attirés par des partenaires qui, par la suite, nous rendront dingue. Voilà ce que signifie la fameuse phrase ‘les opposes s’attirent’. Les romantiques sont attirés par les rebelles, les rebelles par les conformistes, etc. cependant sur le long terme, de telles relations sont voués à faire des étincelles ! Même si vous vous aimez, si votre vision de la vie est totalement différente, si vos valeurs sont fondamentalement opposées, une séparation pourrait être la meilleure option.
+
+‘Le bon’ ou ‘la bonne’ partenaire n’existe probablement pas. Parmi les milliers de célibataire potentiels comment savoir qui est ‘Le bon’/ ‘la bonne’ pour vous ? Au final, vous trouverez un partenaire avec qui vous déciderez de faire votre vie, mais cela aurait pu être une autre personne – vous avez simplement fait un choix. Ensuite vous tenterez de rendre cette personne encore plus compatible avec vous, comme elle essayera de le faire avec vous.
+
+Un mauvais timing peut être source de séparation même si vous vous aimez. Il semblerait que les hommes souhaitent avoir une situation professionnelle et financière stable avant de se mettre en couple, alors que les femmes ne font pas distinction et travail sur les différents aspects de leur vie en même temps.
+
+Marc Blanc, psychologue et thérapeute de couple expérimenté, propose sur son site `https://expertex.fr
+<https://expertex.fr/>`_ de nombreux conseils afin mieux vivre votre vie sentimentale et relation de couple. Il propose également des techniques et recommandations pour surmonter un deuil amoureux. Cette étape qui peut être relativement douloureuse et déroutante fait de plus en plus souvent partie de la vie d’une relation amoureuse. Il existe cependant des comportements à adopter qui peuvent nous aider à mitiger les sentiments profonds qui peuvent surgir, et donc nous aider à tourner la page avec plus de facilité. Une rupture n’est en effet pas une fin en soi mais plutôt le début d’une nouvelle page. Le deuil peut néanmoins parfois être particulièrement compliquée, en particulier si la personne souffre d’un manque de confiance en soi ou de dépendance affective.
+
+Le love coach Marc Blanc explique également quelles sont les étapes, les choses à faire et celles à ne pas faire si vous avez décidé de tenter de vous remettre avec votre ex. Sur ce point sachez qu’il est en effet possible de s’aimer de nouveau bien que cela nécessite souvent d’accepter la rupture et travailler pour créer une nouvelle relation amoureuse, fondée sur de nouvelles bases et une nouvelle compréhension des attentes, besoins et souhaits de son compagnon / de sa compagne. Pour en savoir plus consultez cet `article de conseils pour reconquérir un homme
+<https://expertex.fr/reconquerir-son-ex/>`_ ou une femme.
+
+Il n’est pas rare de constater que les couples vivant une période difficile n’en parlent à personne ou lorsque l’un des conjoints se confie, il le fait à ses amies ou à sa famille. Cependant, il peut être plus facile de s’ouvrir et discuter avec un inconnu qui ne vous jugera pas et cela sera d’autant plus bénéfique si cette personne à une compréhension des rapports de couple et des relations psychologiques à l’œuvre dans toutes rencontres, relation amoureuse, passion, vie à deux, désir, plaisir, mariage, crises et divorce.
